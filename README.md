@@ -1,5 +1,5 @@
-# drawing-an-animal
+# sunset drawing 
 
-animal drawing practice cause i havent done this in years 😭
+sunset and animal drawing practice cause i havent done this in years 😭
 
 yippee!!
